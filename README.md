@@ -1,4 +1,5 @@
-I want to escape 3rd world country, Russia, by relocating into *Amsterdam* 🥺
+I want to escape 3rd world country, Russia, by relocating into *Amsterdam*
+as high-skilled it-products developer 🥺
 
 plz help 🤣
 
